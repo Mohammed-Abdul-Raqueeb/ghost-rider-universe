@@ -125,4 +125,4 @@ https://github.com/Mohammed-Abdul-Raqueeb
 
 ---
 
-🔥 **Built as a fan tribute to the Spirit of Vengeance.**
+🔥 **Built as a fan tribute to the Spirit of Vengeance..**
